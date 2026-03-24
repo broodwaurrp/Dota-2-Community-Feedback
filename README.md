@@ -1,3 +1,4 @@
+#MakeDotaGreatAgain #MDGA
 We represent a part of the CIS Dota 2 community and many players worldwide who care about the current state of the game. We want to share our concerns about how Dota 2 has been developing in recent years.
 
 For us, Dota 2 is more than just a game — it’s a competitive space and an important part of our community. However, there are several ongoing issues that continue to affect the player experience and don’t seem to be addressed properly.
