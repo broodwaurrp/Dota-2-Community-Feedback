@@ -1,4 +1,4 @@
-#MakeDotaGreatAgain #MDGA
+#MakeDotaGreatAgain #MDGA 
 
 We represent a part of the CIS Dota 2 community and many players worldwide who care about the current state of the game. We want to share our concerns about how Dota 2 has been developing in recent years.
 
